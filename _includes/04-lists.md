@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+Who will cry when you die
+Wings of fire
+The story of my experiments with truth
